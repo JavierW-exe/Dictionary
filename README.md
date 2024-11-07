@@ -1,0 +1,2 @@
+# Dictionary
+Menerjemahkan kata modern
